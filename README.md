@@ -7,3 +7,4 @@ kpop demon hunters
         - a masitgetda sseup
         - - ppalli ppalli zip gaza
         - ah injeong
+        - - grigo naneun shigoshipda
