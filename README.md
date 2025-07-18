@@ -8,3 +8,4 @@ kpop demon hunters
         - - ppalli ppalli zip gaza
         - ah injeong
         - - grigo naneun shigoshipda
+          - ajikdo ten twentytwo
