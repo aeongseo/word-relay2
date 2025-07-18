@@ -4,3 +4,4 @@ kpop demon hunters
   - - you are so young
       - gruchiyo. im young
       - - gukbab meokgoshipda
+        - a masitgetda sseup
