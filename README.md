@@ -3,3 +3,4 @@ kpop demon hunters
   - too hungry
   - - you are so young
       - gruchiyo. im young
+      - - gukbab meokgoshipda
